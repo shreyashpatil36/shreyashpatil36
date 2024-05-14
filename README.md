@@ -1,4 +1,4 @@
-## 👋 Hi, I’m shreyash Viay Patil
+## 👋 Hi, I’m shreyash Vijay Patil
 - 🌱 I’m currently learning Artificial Intelligence & Machine Learning
 - 💬 Ask me about anything! :)
 - 📫 Drop an email - shreyashp947@gmail.com
